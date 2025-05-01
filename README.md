@@ -1,2 +1,1 @@
-# hello-world
-This repository is for practicing the GitHub Flow.
+My name is joaquin. I am 16 years old and in 10th grade. I'm a little shy but very gay(happy) but i wanna make friends with a lot of boys so i could be actually gay(not in the term happy). I love swords and katanas. They are so sharp and long. I hope to play sword fights with these boys i become friends with. Thats a little something about me!
